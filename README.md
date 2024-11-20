@@ -1,4 +1,4 @@
-# Motivational Quotes
+# Tamil Motivational Quotes  
 
 Here are some short and single-line தமிழ் கவிதைகள் and Tamil motivational quotes.  
 
